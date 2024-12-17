@@ -1,0 +1,3 @@
+- **Reference ⬇️**
+  - [Fish Image](https://img.freepik.com/free-psd/swimming-fish-isolated_23-2151359664.jpg)
+  - [Fish Bowl inspiration](https://youtu.be/a2PXv0suX6I?si=D7mWm3SLiQGv52lo)
